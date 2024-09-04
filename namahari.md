@@ -3,5 +3,5 @@
 senin
 selasa
 rabu sore jogging yuk
-kamis
+kamis puasa
 jumat saatnya jumatan
