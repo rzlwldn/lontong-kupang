@@ -2,6 +2,6 @@
 
 seniinn makan bakso
 selasa
-rabu
-kamis
+rabu sore jogging yuk
+kamis 
 jumat
