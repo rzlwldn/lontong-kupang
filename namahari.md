@@ -1,6 +1,6 @@
 # nama hari
 
-senin
+seniinn makan bakso
 selasa
 rabu
 kamis
