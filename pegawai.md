@@ -1,12 +1,12 @@
 Nama pegawai :
-Joko
-Susi
+Joko absen
+Susi absen
 Kaka
 Harjo
 Wan
 Lan
 tambahan:
 susanti
-jarjit
+jarjit absen
 mei-mei
-ijat
+ijat absen
