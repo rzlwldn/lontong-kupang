@@ -1,6 +1,6 @@
 # menu makanan sulawesi
 
-Buras
+Buras 1 porsi isi dua
 Konro
 Coto Makassar
 Bubur Manado

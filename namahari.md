@@ -1,6 +1,6 @@
 # nama hari
 
-senin panas banget
+seniinn makan bakso
 selasa
 rabu
 kamis
