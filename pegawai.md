@@ -5,3 +5,8 @@ Kaka
 Harjo
 Wan
 Lan
+tambahan:
+susanti
+jarjit
+mei-mei
+ijat
