@@ -3,5 +3,5 @@
 seniinn makan bakso
 selasa
 rabu sore jogging yuk
-kamis 
-jumat
+kamis
+jumat saatnya jumatan
