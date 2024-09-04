@@ -1,6 +1,6 @@
 # nama hari
 
-senin
+senin panas banget
 selasa
 rabu
 kamis
