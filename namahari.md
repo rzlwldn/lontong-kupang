@@ -4,4 +4,4 @@ seniinn makan bakso
 selasa
 rabu
 kamis
-jumat
+jumat saatnya jumatan
