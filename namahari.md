@@ -1,6 +1,6 @@
 # nama hari
 
-seniinn makan bakso
+senin
 selasa
 rabu sore jogging yuk
 kamis
